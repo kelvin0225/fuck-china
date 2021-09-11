@@ -1,0 +1,2 @@
+# fuck-china
+fuck china
